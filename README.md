@@ -1,9 +1,9 @@
 ## Caleb Kitzman
 ***
 ### Senior Finance & Business Analytics and Information Systems Student 
-### Tippie College of Business, The University of Iowa
-## Iowa City, IA
+### Tippie College of Business, The University of Iowa, Iowa City, IA
 Pronouns: He/Him/His
+[LinkedIn[(https://www.linkedin.com/in/calebkitzman/)
 
 
 
