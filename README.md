@@ -1,8 +1,8 @@
 ### Caleb Kitzman
 ***
-# Senior Finance & Business Analytics and Information Systems Student 
+##### Senior Finance & Business Analytics and Information Systems Student 
 
-# Tippie College of Business, The University of Iowa
+##### Tippie College of Business, The University of Iowa
 <!--
 **ckitzman/ckitzman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
