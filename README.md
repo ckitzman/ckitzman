@@ -1,5 +1,4 @@
 ## Caleb Kitzman
-***
 ### Senior, Finance & Business Analytics and Information Systems Student 
 ### Tippie College of Business, The University of Iowa
 Pronouns: He/Him/His
